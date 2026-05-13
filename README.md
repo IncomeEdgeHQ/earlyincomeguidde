@@ -1,1 +1,1 @@
-# georgekrowe.github.io
+# moneymindset-hub
